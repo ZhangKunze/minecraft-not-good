@@ -3,9 +3,9 @@ Microsoft and mojang trouble me
 
 The bugjump(mojang) and Microslop(Microsoft) is not good,them trouble me.
 
-##F***,you！Planckslop!
+##F***ing,you！Planckslop!
 
-#Who am.I?
+#Who am I?
 
 -ZKZLLPPAM.
 
